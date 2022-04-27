@@ -13,3 +13,5 @@ Em uma panela, aqueça a manteiga e misture o chocolate em pó até que esteja h
 Acrescente o creme de leite e misture bem até obter uma consistência cremosa.
 
 Desligue o fogo e acrescente o açúcar.
+
+e pra finalizar coloque a calda uniformimente e após colocar a calda adicione as folhas de ouro separadas entre si.
